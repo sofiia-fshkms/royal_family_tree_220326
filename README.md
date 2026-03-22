@@ -4,3 +4,5 @@
 
 \- Elizabeth II
 
+\- George VI (father of Elizabeth II)
+
