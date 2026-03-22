@@ -4,5 +4,7 @@
 
 \- Elizabeth II
 
-\- Elizabeth Bowes-Lyon (mother of Elizabeth II)
+\- Elizabeth Bowes-Lyon 
+
+\- Cecilia Bowes-Lyon
 
