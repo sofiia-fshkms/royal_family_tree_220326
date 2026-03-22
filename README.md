@@ -4,5 +4,7 @@
 
 \- Elizabeth II
 
-\- George VI (father of Elizabeth II)
+\- George VI
+
+\- Mary of Teck
 
