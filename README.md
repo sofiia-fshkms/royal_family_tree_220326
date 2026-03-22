@@ -4,7 +4,9 @@
 
 \- Elizabeth II
 
-\- Elizabeth Bowes-Lyon 
+\- Elizabeth Bowes-Lyon
 
 \- Claude Bowes-Lyon
+
+\- Louisa Scott
 
